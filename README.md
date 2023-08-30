@@ -1,6 +1,8 @@
 # Chinese Traditional 
 [Google Cloud Drive](https://drive.google.com/drive/folders/1CGQ43laDY_m2KX76CPPa7JJvfvss_TmM)
 
+[Bahamut](https://forum.gamer.com.tw/C.php?bsn=22577&snA=2818)
+
 Powered By [AnJet Cat](https://www.youtube.com/@AnJetCat)
 
 # Chinese Simplified 
