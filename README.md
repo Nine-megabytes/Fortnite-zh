@@ -1,6 +1,12 @@
-Powered By [_聪明豆_ ](https://space.bilibili.com/432151695)
+# Chinese Traditional 
+[Google Cloud Drive](https://drive.google.com/drive/folders/1CGQ43laDY_m2KX76CPPa7JJvfvss_TmM)
 
-Website [FORTNITE](https://fngamecn.top/)
+Powered By [AnJet Cat](https://www.youtube.com/@AnJetCat)
+
+# Chinese Simplified 
+[语雀](https://www.yuque.com/congmingdou-yjz9r/xd97n5/rlrvsi)
+
+Powered By [_聪明豆_ ](https://space.bilibili.com/432151695)
 
 **For archiving only**
 
